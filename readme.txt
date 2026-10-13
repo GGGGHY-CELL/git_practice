@@ -1,7 +1,0 @@
-Hello Kitty
-MISKA MOSKA MIKKY MOUSE
-ветка conflict
-ветка master
-JMSDKJFIJFUIERFHUHURHFUIHFG
-
-MAN WHATS WRONG
